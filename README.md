@@ -17,8 +17,7 @@
 2.![zzfQQ](https://img1.daumcdn.net/thumb/R720x0/?fname=http%3A%2F%2Ft1.daumcdn.net%2Fliveboard%2Fdaumsearch%2F4e19fd861dcc40d3a840059f2ecccb3b.jpg)
 
 
-1.![ㅇㅇㅇㅇㅇ](https://www.google.com/url?sa=i&url=http%3A%2F%2Fblog.naver.com%2Fpivunjane%2F80175724317&psig=AOvVaw0etHlWDMnXF4JOodz7nDKd&ust=1616208093626000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCOiZ7r6qu-8CFQAAAAAdAAAAABAK)
-
+1.![ㅇㅇㅇㅇㅇ](https://sciencebob.com/wp-content/uploads/2014/06/1794616_10151829683431256_1252900781_n.jpg)
 
 2. [ㅎ](https://www.youtube.com/watch?v=3neU3OzeUPk)
 
