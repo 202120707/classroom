@@ -21,7 +21,7 @@
 
 2. [ㅎ](https://www.youtube.com/watch?v=3neU3OzeUPk)
 
-[![ㅋㅋ](https://img1.daumcdn.net/thumb/R720x0/?fname=http%3A%2F%2Ft1.daumcdn.net%2Fliveboard%2Fdaumsearch%2F4e19fd861dcc40d3a840059f2ecccb3b.jpg)](https://www.youtube.com/watch?v=aUL0CMMDVFg)
+[![ㅋㅋ](https://img1.daumcdn.net/thumb/R720x0/?fname=http%3A%2F%2Ft1.daumcdn.net%2Fliveboard%2Fdaumsearch%2F4e19fd861dcc40d3a840059f2ecccb3b.jpg)](https://www.youtube.com/watch?v=FFgklw8UeHQ)
 
 
 
