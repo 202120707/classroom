@@ -22,7 +22,7 @@
 
 2. [ㅎ](https://www.youtube.com/watch?v=Vdj8NVbv0q8)
 
-[![속](https://www.youtube.com/watch?v=OLCbJ00OnK4&list=RDOLCbJ00OnK4&start_radio=1)](https://www.youtube.com/watch?v=04HcVt4wW_o)
+[![ㅋㅋ](https://www.youtube.com/watch?v=OLCbJ00OnK4&list=RDOLCbJ00OnK4&start_radio=1)](https://www.youtube.com/watch?v=04HcVt4wW_o)
 
 
 
